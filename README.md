@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **dhirajsalvi099@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1GgP3iurT80s1oZq88EeYeGyXPJC_n_FU/view?usp=sharing](https://drive.google.com/file/d/1GgP3iurT80s1oZq88EeYeGyXPJC_n_FU/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1GgP3iurT80s1oZq88EeYeGyXPJC_n_FU/view?usp=sharing]
 
 - ⚡ Fun fact **I can produce drum sound with mouth called as Beatbox**
 
